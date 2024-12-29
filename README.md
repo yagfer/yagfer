@@ -1,6 +1,7 @@
 - Hey! I'm Em, but you can also call me Mapache.
 - Mexican Salvadorian 🇲🇽🇸🇻
 - Minor, he/they it, and very neurodivergent
+- ENG/ESP/FRA and learning turkish!
 - I LOVE MY BOYFRIEND!!!!!!!!
 - for ponytown: im ALWAYS walking around, i sometimes sit near the docks but rarely
 - i am EXTREMELY energetic, so if i use all caps, please dont be alarmed :3
