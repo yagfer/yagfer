@@ -8,5 +8,6 @@
 - ask me about maNga, nu metal and turkish rock/metal!!!!
 - maNga fans PLEASE add
 - nu metal fans PLEASE add
+- 8:11 fans PLEASE add
 - check my spacehey! ata, neocities and strawpage in wip!!!!
 - add me on discord! (@yagfer)
