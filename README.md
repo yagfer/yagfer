@@ -9,5 +9,6 @@
 - maNga fans PLEASE add
 - nu metal fans PLEASE add
 - 8:11 fans PLEASE add
-- check my spacehey! ata, neocities and strawpage in wip!!!!
+- check my spacehey!
+- sign my ata and strawpage!
 - add me on discord! (@yagfer)
