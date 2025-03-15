@@ -5,7 +5,8 @@
 - I LOVE MY BOYFRIEND!!!!!!!!
 - for ponytown: im ALWAYS walking around, i sometimes sit near the docks but rarely
 - i am EXTREMELY energetic, so if i use all caps, please dont be alarmed :3
-- ask me about maNga, nu metal and turkish rock/metal!!!!
+- ask me about Formula 1, maNga, nu metal and turkish rock/metal!!!!
+- -Formula  1 fans PLEASE add
 - maNga fans PLEASE add
 - nu metal fans PLEASE add
 - 8:11 fans PLEASE add
