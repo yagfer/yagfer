@@ -1,3 +1,4 @@
+![thesillyseperator](https://64.media.tumblr.com/b24f1f30b5d5aecb0370ed48603ea757/9301312f61941f3c-6e/s2048x3072/9d5dd3d704c174ed935fc05d2b6f26b87b520dc4.pnj)
 - Hey! I'm Em, but you can also call me Mapache.
 - Mexican Salvadorian 🇲🇽🇸🇻
 - Minor, he/they it, and very neurodivergent
@@ -13,4 +14,3 @@
 - check my spacehey!
 - sign my ata and strawpage!
 - add me on discord! (@yagfer)
-![thesillyseperator](https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv)
