@@ -14,4 +14,4 @@
 - check my spacehey!
 - sign my ata and strawpage!
 - add me on discord! (@yagfer)
-- i would prefer if you didnt follow me if you arent in any of the fandoms i have avatars on (tldr; spam followers arent too appreciated)
+- i would prefer if you didnt follow me if you arent in any of the fandoms i have avatars on (tldr; **spam followers arent too appreciated**)
