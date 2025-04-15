@@ -13,4 +13,4 @@
 - check my spacehey!
 - sign my ata and strawpage!
 - add me on discord! (@yagfer)
-- i would prefer if you didnt follow me if you arent in any of the fandoms i am in (tldr; **spam followers arent too appreciated unless youre in my fandoms**)
+- **spam followers unappreciated and will be blocked**
