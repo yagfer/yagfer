@@ -6,7 +6,7 @@
 - for ponytown: im ALWAYS walking around, i sometimes sit near the docks but rarely. Will be at docks during race days
 - i am EXTREMELY energetic, so if i use all caps, please dont be alarmed :3
 - ask me about Formula 1 (2 or 3), maNga, nu metal and turkish rock/metal!!!!
-- -my favorite Formula drivers are Charles Leclerc, George Russell (they can never make me hate you), Kimi Antonelli, Alex Albon, Yuki Tsunoda, and Carlos Sainz! I also love Rafael Camara from Formula 3!!!
+- my favorite Formula drivers are Charles Leclerc, George Russell (they can never make me hate you), Kimi Antonelli, Alex Albon, Yuki Tsunoda, and Carlos Sainz! I also love Rafael Camara from Formula 3!!!
 - Formula  1, nu metal and 8:11 fans PLEASE add
 - check my spacehey!
 - sign my ata and strawpage!
