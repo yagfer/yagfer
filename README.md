@@ -2,7 +2,7 @@
 - Hey! I'm Em, but you can also call me Mapache. ![demisexual](https://i.postimg.cc/ZnVK5LgZ/demisexual-3-stripes-21-px.png) ![gay](https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png) ![intersex](https://i.postimg.cc/htC9X0ft/intersex-1-stripes-20-px.png) ![nonbinary](https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png) ![transmasc](https://i.postimg.cc/rsMkDtqQ/transmasc-20px-5-stripes.png)
 - Mexican Salvadorian 🇲🇽🇸🇻
 - Minor, he/they it, and very neurodivergent
-- ENG/ESP/FRA/POR and learning turkish!
+- ENG/ESP/FRA/POR and learning turkish and italian!
 - for ponytown: im ALWAYS walking around, i sometimes sit near the docks but rarely. Will be at docks during race days
 - i am EXTREMELY energetic, so if i use all caps, please dont be alarmed :3
 - ask me about Formula 1 (2 or 3), maNga, nu metal and turkish rock/metal!!!!
